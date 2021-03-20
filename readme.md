@@ -34,11 +34,11 @@ Me llamo Agustín Pablo Molina, tengo 20 años, nací en Campana y soy hincha de
 Wim Hof es un holandés conocido como " Ice man " por su alta capacidad para resistir a temperaturas demasiado frías. Tiene 26 Records Guinness y escaló el Everest en traje de baño. 
 El método Wim Hof se basa en exponer progresivamente tu cuerpo al frío y llevarlo al límite, tal que tu mente sea la que controla todo lo que sucede en ese momento.
 Los beneficios de este método están científicamente comprobados y algunos de ellos son :
-*- Sistema inmunologico más fuerte*
-*- Controla la Ansiedad*
-*- Aumenta la energía*
-*- Aumenta la capacidad de concentración*
-*- Aumenta la fuerza de voluntad*
+- *Sistema inmunologico más fuerte*
+- *Controla la Ansiedad*
+- *Aumenta la energía*
+- *Aumenta la capacidad de concentración*
+-  *Aumenta la fuerza de voluntad*
 
 El método se lleva a cabo mediante técnicas de respiración las cuales acumulan oxigeno en todo el cuerpo, y luego se realiza la inmersión en frio. La cual es progresiva. 
 
